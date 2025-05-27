@@ -1,1 +1,1 @@
-completed the project on December 2024
+completed the project/study on December 2024
